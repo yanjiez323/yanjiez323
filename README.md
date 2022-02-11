@@ -1,4 +1,9 @@
-### Hi there 👋
+### Hi! My name is Yanjie Zhang, also known as 乐乐 to my close friends. 
+### I'm currently a sophmore studying Neuroscience in the College of Arts and Sciences.
+### Working my way through rehab for my Valorant addiction, very difficult so far...
+### I love to read manga, webtoons, and webnovels! Please send me recs!!
+### Involved in The Signal, a Neuroscience Lab, and now Spark!
+### Penn has been fun~
 
 <!--
 **yanjiez323/yanjiez323** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
